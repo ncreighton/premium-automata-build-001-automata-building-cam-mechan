@@ -1,0 +1,2 @@
+# premium-automata-build-001-automata-building-cam-mechan
+Tired of your cam mechanism designs, material samples, and build iterations scattered across sticky notes and random folders? The Automata Building &amp; Cam Mechanism Craft Hub gives you a single, intelligent cockpit to track every component, testing cycle, and prototype—so you can spend less time hunting for info and more time making your creations m
